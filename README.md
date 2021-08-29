@@ -7,4 +7,3 @@
 
 Follow me at GitHub and if you are interested in what I am building. 
 
-_Soon will be more interesting details here._
